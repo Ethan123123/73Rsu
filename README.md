@@ -1,2 +1,2 @@
 # 73Rsu
-WE AREA CULT
+WE ARE A CULT
